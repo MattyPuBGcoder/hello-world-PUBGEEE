@@ -1,2 +1,2 @@
 # hello-world-PUBGEEE
-PUBG is life
+here ar some changes and deletions
